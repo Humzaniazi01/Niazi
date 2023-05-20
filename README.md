@@ -1,0 +1,2 @@
+# Niazi
+MEDICAL LAB TECHNICIAN 
